@@ -7,7 +7,8 @@ WSS / Dream supporters / problematic people. Any discrimination (transphobic, ho
 -13 / 25+ 
 
 ★ Don’t copy or use inspiration from any of my ponies. It also means do 𝐍𝐎𝐓 copy/inspo my usual color style 
-• Ask first! (light inspo only)
+• Ask first(light inspo only)
+
 𝐍o permission = no use.
 
 
