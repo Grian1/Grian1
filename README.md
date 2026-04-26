@@ -2,8 +2,8 @@
 19 → 20 y.o      ★𝙃𝙚/𝙃𝙞𝙢
 
 Boundaries and DNI
-•Don’t be weird.
-WSS / Dream supporters / problematic people. Any discrimination (transphobic, homophobic, sexist, etc.)
+Basic DNI / Cafeteria criteria 
+Just don't be a jerk 
 -13 / 25+ 
 
 ★ DNC/INSPO any of my ponies + DNC/INSPO my coloring style.
