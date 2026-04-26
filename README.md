@@ -2,6 +2,7 @@
 19 → 20 y.o      ★𝙃𝙚/𝙃𝙞𝙢
 
 Boundaries and DNI
+ 
 Basic DNI / Cafeteria criteria 
 Just don't be a jerk 
 -13 / 25+ 
@@ -9,8 +10,7 @@ Just don't be a jerk
 ★ DNC/INSPO any of my ponies + DNC/INSPO my coloring style.
 
 Always respect my friends.
-If you have an issue with me → talk to me, not them.
-It’s not their responsibility to solve my problems. 
+If you have an issue with me → talk to me, not them.It’s not their responsibility to solve my problems. 
 
 𝙄𝙉𝙏 : 
 Feel free for C+H ♡
