@@ -2,10 +2,11 @@
 19 → 20 y.o      ★𝙃𝙚/𝙃𝙞𝙢
 
 Boundaries and DNI
+
+ Just don't be a jerk
  
 Basic DNI / Cafeteria criteria 
-Just don't be a jerk 
--13 / 25+ 
+ -13 / 25+ 
 
 ★ DNC/INSPO any of my ponies + DNC/INSPO my coloring style.
 
