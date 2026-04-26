@@ -14,7 +14,7 @@ Always respect my friends.
 If you have an issue with me → talk to me, not them.It’s not their responsibility to solve my problems. 
 
 𝙄𝙉𝙏 : 
-𝙵𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚏𝚘𝚛 𝑪+𝑯 ♡
+Feel free for C+H
 Please don't be shy, i won't bite!
 𝘼𝙡𝙬𝙖𝙮𝙨 𝙬2𝙄 ! Slow replies - might not see messages right away, so please don’t take it personally if I don’t respond immediately.
 I’m quiet, often AFK, and not great at socializing.
