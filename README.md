@@ -3,7 +3,7 @@
 
 𝐁𝐨𝐮𝐧𝐝𝐚𝐫𝐢𝐞𝐬 𝐚𝐧𝐝 𝐃𝐍𝐈
 
- Don't be a jerk, 𝚝𝚑𝚊𝚝'𝚜 𝚊𝚕𝚕 
+ Don't be a jerk, that's all
  
 Basic DNI / Cafeteria criteria 
 , -13 / 25+ 
