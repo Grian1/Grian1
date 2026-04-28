@@ -1,9 +1,11 @@
  ## 𝐆𝐫𝐢𝐚𝐧 / 𝐆 / 𝐆𝐫𝐢              
 19 → 20 y.o   , 𝙃𝙚/𝙃𝙞𝙢    
 
+I'm trans/aroace  Suspected ADS and severe depression 
+
 𝐁𝐨𝐮𝐧𝐝𝐚𝐫𝐢𝐞𝐬 𝐚𝐧𝐝 𝐃𝐍𝐈
 
- Don't be a jerk, that's all
+Just don't be a jerk!
  
 Basic DNI / Cafeteria criteria 
 , -14 / 25+ 
