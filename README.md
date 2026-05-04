@@ -1,7 +1,7 @@
  ## 𝐆𝐫𝐢𝐚𝐧 / 𝐆 / 𝐆𝐫𝐢              
 19 → 20 y.o   , 𝙃𝙚/𝙃𝙞𝙢    
 
-trans/aroace •  Suspected ADD 
+aroace •  Suspected ADD 
 
 ( ADD= Attention Deficit Disorder )
 
